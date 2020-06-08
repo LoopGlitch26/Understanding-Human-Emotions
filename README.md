@@ -7,4 +7,5 @@
 # Direct and Indirect variables 
 # Destroy Emotions
 # Reanimate Emotions
-# ..
+# Geographical influence
+# Musical proportionality
