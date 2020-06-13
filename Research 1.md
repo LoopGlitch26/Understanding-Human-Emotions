@@ -1,3 +1,5 @@
+* ***First let us analyse the two types of emotions, Irrational Emotions and Emotional Wisdom***
+
 * **Irrational Emotions** are those emotions that are in tension with our evaluative judgements which occur 
 due to recalcitrance. Let's consider a situation where your partner is dancing with someone else in an open club
 or Salsa club. It's completely normal to trade partners for dance in a salsa club. But once the irrational thoughts take over
