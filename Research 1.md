@@ -27,4 +27,4 @@ by appraisal mechanisms that aren’t cognitively penetrated.
   
   * You praise, apologise, give helpful feedback, forgive and forget, stick to commitments, etc. which can also be a sign of maturity.
   
-* Emotional Intelligence has a **dark-side**. Such as when individuals attempt to manipulate others' emotions to promote a personal agenda or for some other selfish cause. (I personally always do, to learn human brain and their emotions, and try to figure out the constants and variables on a more probable scale)
+* Emotional Intelligence has a **dark-side**. Such as when individuals attempt to manipulate others' emotions to promote a personal agenda or for some other selfish cause. (I personally always do, to learn about the human brain and their emotions, and try to figure out the constants and variables on a more probable scale)
